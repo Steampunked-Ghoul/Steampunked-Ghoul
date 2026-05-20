@@ -28,4 +28,4 @@ Ata Book: https://ghoulz.atabook.org/
 
 ⋆⁺₊⋆ ☾⋆⁺₊⋆
 
-I Love My Wife @farpmanbarnyins No One Can Out Wife Him And No One Will Every Be As Close With Me ` I Love You Sm And Im So Happy You Came Into My Life, I Feel Like I Wouldn't Be Here If You Weren't Here And I Hope You Know How Much You Mean To Me. You Care For Me, You Listen To Whatever I Have To Say Good Or Bad, You Let Me Nerd Out On You With Topics I'm Embarrised To Bring Up :heart_exclamation:
+I Love My Wife @farpmanbarnyins No One Can Out Wife Him And No One Will Every Be As Close With Me ` I Love You Sm And Im So Happy You Came Into My Life, I Feel Like I Wouldn't Be Here If You Weren't Here And I Hope You Know How Much You Mean To Me. You Care For Me, You Listen To Whatever I Have To Say Good Or Bad, You Let Me Nerd Out On You With Topics I'm Embarrised To Bring Up ❣️
