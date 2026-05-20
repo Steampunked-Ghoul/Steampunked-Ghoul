@@ -14,7 +14,7 @@ Asher/Ash/That Group Doc In Profile
 
 ⋆⁺₊⋆ ☾⋆⁺₊⋆
 
-I Have Other Links For People To Look At ` Please Read Strawpage Before You Int With Me!
+I Have Other Links For People To Look At, All Links Have Way More Info On Me (Patreon Is For Pony Town Only, If Ya Don't Play It Dont Bother Reading It ` Please Read Strawpage Before You Int With Me!
 
 Strawpage: https://steampunkedghoulz.straw.page/ 
 
@@ -24,6 +24,7 @@ Prounouns Page: https://en.pronouns.page/@Ghoulz_
 
 Dni List: https://ghoulzdnilist.straw.page/
 
+Ata Book: https://ghoulz.atabook.org/
 
 ⋆⁺₊⋆ ☾⋆⁺₊⋆
 
