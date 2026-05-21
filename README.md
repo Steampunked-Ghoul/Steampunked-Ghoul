@@ -20,7 +20,7 @@ Strawpage: https://steampunkedghoulz.straw.page/
 
 Patreon: https://www.patreon.com/c/steampunk_ghoulz/about
 
-Prounouns Page: https://en.pronouns.page/@Ghoulz_
+Prounouns Page: https://en.pronouns.page/@Ghoulz_/
 
 Dni List: https://ghoulzdnilist.straw.page/
 
