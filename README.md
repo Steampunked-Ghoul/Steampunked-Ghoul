@@ -16,7 +16,7 @@ Asher/Ash/That Group Doc In Profile
 
 I Have Other Links For People To Look At, All Links Have Way More Info On Me (Patreon Is For Pony Town Only, If Ya Don't Play It Dont Bother Reading It ` Please Read Strawpage Before You Int With Me!
 
-Strawpage: https://steampunkedghoulz.straw.page/ 
+Strawpage: [https://https://steampunked-ghoulz.straw.page](https://steampunked-ghoulz.straw.page)
 
 Patreon: https://www.patreon.com/c/steampunk_ghoulz/about
 
