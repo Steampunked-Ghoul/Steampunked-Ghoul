@@ -18,6 +18,8 @@ I Have Other Links For People To Look At, All Links Have Way More Info On Me (Pa
 
 Strawpage: [https://https://steampunked-ghoulz.straw.page](https://steampunked-ghoulz.straw.page)
 
+Art Strawpage: https://ghoulz-artz.straw.page/
+
 Patreon: https://www.patreon.com/c/steampunk_ghoulz/about
 
 Prounouns Page: https://en.pronouns.page/@Ghoulz_/
