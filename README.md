@@ -2,7 +2,7 @@
 
 ⋆⁺₊⋆ ☾⋆⁺₊⋆
 
-Hey, Im Ghoulz, But Like Everyone Knows That Already ` I Use He/Him Pronouns (Idm They/Them But Perfer He/Him) I'm 17 Nearly 18 Currently Going Through Collage Doing Hospotality!!
+Hey, Im Ghoulz, But Like Everyone Knows That Already ` I Use He/Him Pronouns I'm 17 Nearly 18 Currently Going Through Collage Doing Hospotality !! Please Int With Me I SWEAR I DONT BITE !!
 
 I'm A Very Unsocialable Person So Please Don't Take Me Not Talking To You Personally, I'm Unable To Start Convos/Keep Them Going As I Get Awkward Very Quickly Even If Im With Close Frineds!
 
@@ -14,7 +14,7 @@ Asher/Ash/That Group Doc In Profile
 
 ⋆⁺₊⋆ ☾⋆⁺₊⋆
 
-I Have Other Links For People To Look At, All Links Have Way More Info On Me (Patreon Is For Pony Town Only, If Ya Don't Play It Dont Bother Reading It ` Please Read Strawpage Before You Int With Me!
+I Have Other Links For People To Look At, All Links Have Way More Info On Me (Patreon Is For Pony Town Only, If Ya Don't Play It Dont Bother Reading It) Also Please Read Strawpage Before You Int With Me!
 
 Strawpage: [https://https://steampunked-ghoulz.straw.page](https://steampunked-ghoulz.straw.page)
 
