@@ -2,7 +2,7 @@
 
 ⋆⁺₊⋆ ☾⋆⁺₊⋆
 
-Hey, Im Ghoulz, But Like Everyone Knows That Already ` I Use He/Him Pronouns I'm 17 Nearly 18 Currently Going Through Collage Doing Hospotality !! Please Int With Me I SWEAR I DONT BITE !!
+Hey, Im Ghoulz, But Like Everyone Knows That Already ` I Use He/Him Pronouns I'm 18 Currently Going Through Collage Doing Hospotality !! Please Int With Me I SWEAR I DONT BITE !!
 
 I'm A Very Unsocialable Person So Please Don't Take Me Not Talking To You Personally, I'm Unable To Start Convos/Keep Them Going As I Get Awkward Very Quickly Even If Im With Close Frineds!
 
