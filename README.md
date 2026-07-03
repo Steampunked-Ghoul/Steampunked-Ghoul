@@ -32,4 +32,11 @@ Ata Book: https://ghoulz.atabook.org/
 
 I Love My Wife @farpmanbarnyins No One Can Out Wife Him And No One Will Every Be As Close With Me ` I Love You Sm And Im So Happy You Came Into My Life, I Feel Like I Wouldn't Be Here If You Weren't Here And I Hope You Know How Much You Mean To Me. You Care For Me, You Listen To Whatever I Have To Say Good Or Bad, You Let Me Nerd Out On You With Topics I'm Embarrised To Bring Up ❣️
 
-<img width="1000" height="450" alt="image" src="https://github.com/user-attachments/assets/d89b8f36-aa1a-4926-a8dd-8d3f79ad00cd" />
+
+<img width="471" height="128" alt="image" src="https://github.com/user-attachments/assets/da638408-c942-451c-80c6-45e2ec071595" />
+
+My Fav Ata Responce Out There
+
+<img width="466" height="122" alt="image" src="https://github.com/user-attachments/assets/01b5b99b-d7c2-4681-9aa2-b716c2d47919" />
+
+Also WHO THE FUCK IS THIS?! Ive Been Meaning To Talk To You Whoever You Are..
