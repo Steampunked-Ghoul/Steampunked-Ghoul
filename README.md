@@ -40,3 +40,8 @@ My Fav Ata Responce Out There
 <img width="466" height="122" alt="image" src="https://github.com/user-attachments/assets/01b5b99b-d7c2-4681-9aa2-b716c2d47919" />
 
 Also WHO THE FUCK IS THIS?! Ive Been Meaning To Talk To You Whoever You Are..
+
+<img width="475" height="147" alt="image" src="https://github.com/user-attachments/assets/73dbeec3-8dbc-418a-8495-aac631c5b325" />
+
+WHO ARE YOU.. Please Tell Me Who You Are
+
