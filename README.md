@@ -32,6 +32,9 @@ Ata Book: https://ghoulz.atabook.org/
 
 I Love My Wife @farpmanbarnyins No One Can Out Wife Him And No One Will Every Be As Close With Me ` I Love You Sm And Im So Happy You Came Into My Life, I Feel Like I Wouldn't Be Here If You Weren't Here And I Hope You Know How Much You Mean To Me. You Care For Me, You Listen To Whatever I Have To Say Good Or Bad, You Let Me Nerd Out On You With Topics I'm Embarrised To Bring Up ❣️
 
+<img width="470" height="420" alt="image" src="https://github.com/user-attachments/assets/ed1dc70f-68f8-4b1f-b131-e8b72f670af0" />
+
+I Want To Put Out There *No* I Am Not Ableist, If You Went And Read My Patreon I Have Reasoning, Plus I Don't See How Its Abelist, Its A Prefrence/BOUNDARY. If You Don't Like It, Simply Dni </3
 
 <img width="471" height="128" alt="image" src="https://github.com/user-attachments/assets/da638408-c942-451c-80c6-45e2ec071595" />
 
