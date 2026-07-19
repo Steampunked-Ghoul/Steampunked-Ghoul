@@ -1,20 +1,20 @@
 <img width="1000" height="450" alt="image" src="https://github.com/user-attachments/assets/a15b0975-2627-4e8c-917d-24eb6508da43" />
 
-⋆⁺₊⋆ ☾⋆⁺₊⋆
-
 Hey, Im Ghoulz, But Like Everyone Knows That Already ` I Use He/Him Pronouns I'm 18 Currently Going Through College Doing Hospotality !! Please Int With Me I SWEAR I DONT BITE !!
 
 I'm A Very Unsocialable Person So Please Don't Take Me Not Talking To You Personally, I'm Unable To Start Convos/Keep Them Going As I Get Awkward Very Quickly Even If Im With Close Frineds!
 
-For Personal Accounts (Like Tiktok, Instagram, Discord, Ect. Please Ask Personally As I Don't Just Give It Out
+For Personal Accounts (Like Tiktok, Instagram, Discord, Ect.) Please Ask Personally As I Don't Just Give It Out
 
 ⋆⁺₊⋆ ☾⋆⁺₊⋆
 
 Asher/Ash/That Group Doc In Profile
 
+Doc Wip 👀
+
 ⋆⁺₊⋆ ☾⋆⁺₊⋆
 
-I Have Other Links For People To Look At, All Links Have Way More Info On Me (Patreon Is For Pony Town Only, If Ya Don't Play It Dont Bother Reading It) Also Please Read Strawpage Before You Int With Me!
+I Have Other Links For People To Look At, All Links Have Way More Info On Me (Patreon Is For Pony Town Only, If Ya Don't Play It Dont Bother Reading It) Please Read Strawpage Before You Int With Me!
 
 Strawpage: [https://https://steampunked-ghoulz.straw.page](https://steampunked-ghoulz.straw.page)
 
@@ -30,19 +30,4 @@ Ata Book: https://ghoulz.atabook.org/
 
 ⋆⁺₊⋆ ☾⋆⁺₊⋆
 
-<img width="370" height="320" alt="image" src="https://github.com/user-attachments/assets/ed1dc70f-68f8-4b1f-b131-e8b72f670af0" />
-
-I Want To Put Out There *No* I Am Not Ableist, If You Went And Read My Patreon I Have Reasoning, Plus I Don't See How Its Abelist, Its A Prefrence/BOUNDARY. If You Don't Like It, Simply Dni </3
-
-<img width="471" height="128" alt="image" src="https://github.com/user-attachments/assets/da638408-c942-451c-80c6-45e2ec071595" />
-
-My Fav Ata Responce Out There
-
-<img width="466" height="122" alt="image" src="https://github.com/user-attachments/assets/01b5b99b-d7c2-4681-9aa2-b716c2d47919" />
-
-Also WHO THE FUCK IS THIS?! Ive Been Meaning To Talk To You Whoever You Are..
-
-<img width="475" height="147" alt="image" src="https://github.com/user-attachments/assets/73dbeec3-8dbc-418a-8495-aac631c5b325" />
-
-WHO ARE YOU.. Please Tell Me Who You Are
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31lrjt5mmocnamj67dduuq2o33wa&cover_image=true&theme=novatorem&show_offline=false&background_color=595959&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
