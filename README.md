@@ -30,4 +30,6 @@ Ata Book: https://ghoulz.atabook.org/
 
 ⋆⁺₊⋆ ☾⋆⁺₊⋆
 
+I Have My Music On 24/7 <3
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31lrjt5mmocnamj67dduuq2o33wa&cover_image=true&theme=novatorem&show_offline=false&background_color=595959&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
