@@ -32,6 +32,21 @@ $${\color{#cd6411}Very \space Unsociable \space - \space Don't \space Take \spac
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31lrjt5mmocnamj67dduuq2o33wa&cover_image=true&theme=novatorem&show_offline=false&background_color=595959&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
   
+<p align="left">
+  <img width="350" height="auto" alt="temon" src="https://github.com/user-attachments/assets/0439376e-bfd7-43b2-8d3a-6ae9cbcbbd20" />
+<p align="left"> $${\color{#eda92d}<-- \space Made \space By \space Marki}$$ 
+ <p align="left"> 
+<img width="130" height="auto" alt="Dni" src="https://github.com/user-attachments/assets/f593b1ed-7784-4f48-9b17-954d8c7f46d2" />
+
+  - Basic Dni.
+  - Homo/Trans Phobic's.
+  - Racists.
+  - Pro/Dark Shippers.
+  - 16 And Under & 25 And Over.
+  - Role-players.
+  - Overly Sexual People/People Who Sexualize Things.
+  - More In Dni List.
+
 <p align="right"><img width="350" height="auto" alt="trios" src="https://github.com/user-attachments/assets/76756488-eea5-4d8d-b8aa-53f96ebcb5fd" />
    
   <p align="right"><img width="317" height="auto" alt="Interests" src="https://github.com/user-attachments/assets/b06dd9d5-b461-4051-9da4-aed14cd31748" /> 
@@ -52,20 +67,7 @@ $${\color{#cd6411}Very \space Unsociable \space - \space Don't \space Take \spac
 - Fire Force
 <p align="right">
 - Plus More
-<p align="left">
-  <img width="350" height="auto" alt="temon" src="https://github.com/user-attachments/assets/0439376e-bfd7-43b2-8d3a-6ae9cbcbbd20" />
-<p align="left"> $${\color{#eda92d}<-- \space Made \space By \space Marki}$$ 
- <p align="left"> 
-<img width="130" height="auto" alt="Dni" src="https://github.com/user-attachments/assets/f593b1ed-7784-4f48-9b17-954d8c7f46d2" />
 
-  - Basic Dni.
-  - Homo/Trans Phobic's.
-  - Racists.
-  - Pro/Dark Shippers.
-  - 16 And Under & 25 And Over.
-  - Role-players.
-  - Overly Sexual People/People Who Sexualize Things.
-  - More In Dni List.
 
 <img width="1050" height="auto" alt="Star Divider" src="https://github.com/user-attachments/assets/2ff04723-87f2-4953-a94a-664a73bf1352" />
 
