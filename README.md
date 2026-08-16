@@ -81,6 +81,10 @@ $${\color{#cd6411}Very \space Unsociable \space - \space Don't \space Take \spac
    
 [Strawpage](https://steampunked-ghoulz.straw.page/)    -    [Ata](https://ghoulz.atabook.org/)    -    [Art Strawpage](https://ghoulz-artz.straw.page/)    -    [Pronouns](https://en.pronouns.page/@Ghoulz_/)    -    [Dni List](https://ghoulzdnilist.straw.page/)    -    [Patreon](https://www.patreon.com/c/steampunk_ghoulz/about)
 
+$${\color{#e68613}Friends \space In \space The \space Github \space :}$$
+
+[Narlen](https://github.com/nexxiro)    -    [Marki](https://github.com/FLORAISONS)
+
 <p align="right">
 <img width="280" height="auto" alt="the end" src="https://github.com/user-attachments/assets/becbe077-c206-4794-ac59-a536a85340bd" />
 
