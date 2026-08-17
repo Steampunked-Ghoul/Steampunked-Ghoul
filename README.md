@@ -1,5 +1,3 @@
-<img width="280" height="auto" alt="the beginging" src="https://github.com/user-attachments/assets/34641349-38e4-4fe6-8e15-9e34a333c891" />
-
 <p align="center">
 <img width="640" height="96" alt="TelamonGhoulz" src="https://github.com/user-attachments/assets/86465877-dbcb-4b8f-bd25-0b5641605037" />
 
@@ -87,13 +85,6 @@ $${\color{#e68613}Friends \space In \space The \space Github \space :}$$
 
 [Narlen](https://github.com/nexxiro)    -    [Marki](https://github.com/FLORAISONS)
 
-<p align="right">
-<img width="280" height="auto" alt="the end" src="https://github.com/user-attachments/assets/becbe077-c206-4794-ac59-a536a85340bd" />
-
 
 <p align="center">
 <img width="850" height="auto" alt="bottom page" src="https://github.com/user-attachments/assets/ad4d385e-b62a-4165-a82f-df3c4d78b066" />
-
-
-
-  
