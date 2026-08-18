@@ -17,6 +17,11 @@ $${\color{#cd6411}Very \space Unsociable \space - \space Don't \space Take \spac
 
 <p align="center"> <img width="250" height="auto" alt="Sword Telamon" src="https://github.com/user-attachments/assets/1545f0e6-19dd-4733-9909-e880e758c1e2" /><img width="250" height="auto" alt="God Of The Hights" src="https://github.com/user-attachments/assets/8439b180-0b6a-444a-985a-97f41df8f301" /> 
 
+<p align="center">
+<img width="404" height="auto" alt="me tel" src="https://github.com/user-attachments/assets/909a72e8-37f4-40f1-85ef-dcfae7462689" />
+<p align="center">
+$${\color{#ebae4d}Ponytown's \space Hall \space Of \space Media}$$
+
 <p align="center"><img width="400" height="auto" alt="me irl" src="https://github.com/user-attachments/assets/6747d024-c90d-4146-8bb7-94cd44c41c37" />
 
 <p align="center">
