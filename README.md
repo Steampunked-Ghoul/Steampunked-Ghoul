@@ -11,6 +11,8 @@ $${\color{#e69c13}c*h \space (Cuddle*Hide) \space and \space Cd \space (Crowd \s
 $${\color{#e68613}All \space Art \space On \space Here \space Made \space By \space Me}$$
 $${\color{#cd7711}Linebreaks \space From \space Pintrist \space - \space Custom \space Texts \space From \space Glowtxt.com}$$
 $${\color{#cd6411}Very \space Unsociable \space - \space Don't \space Take \space Me \space Not \space Talking \space To \space You \space Personally}$$
+$${\color{#cd5411}Asher \space / \space Ash \space / \space That \space Group \space Doc \ Link \space In \space Links}$$
+$${\color{#b74b0f}Doc \space Work \space In \space Progress}$$
 
 <p align="center">
   <img width="1050" height="auto" alt="Star Divider" src="https://github.com/user-attachments/assets/2ff04723-87f2-4953-a94a-664a73bf1352" />  
