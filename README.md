@@ -5,7 +5,7 @@
 
 <p align="center">
 $${\color{#f0c74f}He/Him \space - \space Adult \space - \space I \space Block \space Freely}$$
-$${\color{#edbc2d}Kin \space Telamon \space - \space Yume \space Brighteyes}$$
+$${\color{#edbc2d}Kintype \space / \space Fictkin \space Telamon \space - \space Yume \space Brighteyes}$$
 $${\color{#eda92d}Sleeping \space Means \space I'm \space Not \space At \space My \space Pc}$$
 $${\color{#e69c13}c*h \space (Cuddle*Hide) \space and \space Cd \space (Crowd \space Discomfort) \space Always \space On \space Unless \space Specified}$$
 $${\color{#e68613}All \space Art \space On \space Here \space Made \space By \space Me}$$
