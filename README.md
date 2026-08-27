@@ -4,6 +4,9 @@
 <img width="1050" height="auto" alt="Star Divider" src="https://github.com/user-attachments/assets/2ff04723-87f2-4953-a94a-664a73bf1352" />
 
 <p align="center">
+<img width="70" height="auto" alt="ww" src="https://github.com/user-attachments/assets/795f451b-01db-4c42-a70d-e44ad9d7e2f1" /> <img width="70" height="auto" alt="www" src="https://github.com/user-attachments/assets/8ba33371-3d9b-4907-8894-ced574d24f4f" /> <img width="87" height="auto" alt="w" src="https://github.com/user-attachments/assets/165b7812-403b-4836-a30f-21f730593387" />
+
+<p align="center">
 $${\color{#f0c74f}He/Him \space - \space Adult \space - \space I \space Block \space Freely}$$
 $${\color{#edbc2d}Kintype \space / \space Fictkin \space Telamon \space - \space Yume \space Brighteyes}$$
 $${\color{#eda92d}Sleeping \space Means \space I'm \space Not \space At \space My \space Pc}$$
@@ -34,6 +37,9 @@ $${\color{#ebae4d}Ponytown's \space Hall \space Of \space Media}$$
 
 <p align="center">
   <img width="1050" height="auto" alt="Star Divider" src="https://github.com/user-attachments/assets/2ff04723-87f2-4953-a94a-664a73bf1352" />  
+
+  <p align="center">
+  <img width="80" height="auto" alt="gay" src="https://github.com/user-attachments/assets/fcf8e787-bab2-49ed-96a0-dbd23209e06c" /> <img width="80" height="auto" alt="gayy" src="https://github.com/user-attachments/assets/8fa2a52b-bcd4-4752-8f7c-855e65ce2327" /> <img width="78" height="auto" alt="furty" src="https://github.com/user-attachments/assets/a907f0e2-5742-43a4-a578-6bbbc2e46e3b" />
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31lrjt5mmocnamj67dduuq2o33wa&cover_image=true&theme=novatorem&show_offline=false&background_color=595959&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
   
