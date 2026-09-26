@@ -15,7 +15,6 @@ $${\color{#e68613}All \space Art \space On \space Here \space Made \space By \sp
 $${\color{#cd7711}Linebreaks \space From \space Pintrist \space - \space Custom \space Texts \space From \space Glowtxt.com}$$
 $${\color{#cd6411}Very \space Unsociable \space - \space Don't \space Take \space Me \space Not \space Talking \space To \space You \space Personally}$$
 $${\color{#cd5411}Links \space At \space End \space Of \space This}$$
-$${\color{#cd5411}" \space Shout \space Outs \space " \space In \space Repertories \space Below \space - \space Just \space Dickheads \space In \space My \space Ata \space That \space Make \space Me \space Laugh}$$
 
 <p align="center">
   <img width="1050" height="auto" alt="Star Divider" src="https://github.com/user-attachments/assets/2ff04723-87f2-4953-a94a-664a73bf1352" />  
