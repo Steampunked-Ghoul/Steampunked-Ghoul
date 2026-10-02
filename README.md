@@ -91,7 +91,7 @@ $${\color{#ebae4d}Ponytown's \space Hall \space Of \space Media}$$
  
  <p align="left">  $${\color{#e69c13}Links \space :}$$ 
    
-[Strawpage](https://steampunked-ghoulz.straw.page/)    -    [Ata](https://ghoulz.atabook.org/)    -    [Art Strawpage](https://ghoulz-artz.straw.page/)    -    [Pronouns](https://en.pronouns.page/@Ghoulz_/)    -    [Dni List](https://ghoulzdnilist.straw.page/)    -    [Patreon](https://www.patreon.com/c/steampunk_ghoulz/about)
+[Strawpage](https://steampunked-ghoulz.straw.page/)    -    [Ata](https://ghoulz.atabook.org/)    -    [Art Strawpage](https://ghoulz-artz.straw.page/)    -    [Pronouns](https://pronouns.cc/@Steampunked_Ghoulz)    -    [Dni List](https://ghoulzdnilist.straw.page/)    -    [Patreon](https://www.patreon.com/c/steampunk_ghoulz/about)
 
 $${\color{#e68613}Friends \space In \space The \space Github \space :}$$
 
